@@ -10,3 +10,6 @@ Asyik.
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 Kating ramah dan teman bersahabat
+
+## Harapan Kuliah
+Mendapat ilmu yang dibutuhkan untuk menggapai cita-cita.
